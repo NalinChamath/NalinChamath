@@ -1,4 +1,4 @@
-- 👋 Hi, I’m NalinChamath
+- 👋 Hi, I’m Nalin Chamath
 - 👀 I’m interested in Social Media Marketing 
 - 🌱 A highly skilled Social Media marketer with 6 years of experience.
 - 💞️ Hir Me Link-  https://www.fiverr.com/nalinchamath
